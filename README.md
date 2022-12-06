@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ltfDre
+- 👋 Hi, I’m Lütfi Dereli
 - 👀 I’m interested in boardgames and video games, coffee brewing, joggind and reading
 - 🌱 I’m currently learning everything that I need to do!
 - 💞️ I’m looking to collaborate on Power Platform Guys 💪
